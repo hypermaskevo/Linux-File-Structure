@@ -1,1 +1,0 @@
-ceo reviews all reports
